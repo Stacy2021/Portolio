@@ -1,1 +1,1 @@
-This is Stacy's portifolio.
+This is Stacy's portfolio.
